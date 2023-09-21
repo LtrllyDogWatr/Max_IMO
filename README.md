@@ -1,2 +1,2 @@
 # Basketball Hesis
-This site is about Mr. Maximo Zhang
+This site is about how to do different hesis.
