@@ -1,4 +1,4 @@
-# Basketball Hesis
+# Basketball Hesis (hesis)
 This site is about how to do different hesis.
 If you play basketball then you might want to know how to do a few hesis.
 
