@@ -15,4 +15,4 @@ To do this move, you have to cross the ball between you legs and delay your move
 
 To do this move, you need to fake your shot and drop down the ball right when the defender jumps. You can put down the ball in different ways (do not put your hand under the ball while doing this or it will be a carry) such as: a crossover, in & out dribble, or behind the back. This will allow you to finish, dump it off to your big man, or make a move while you defender is delayed because they jumped. This is a strong move, as it is very convincing and will give you lots of space to make a move while the defender is jumping.
 
-![shot fake hesi by Kyrie Irving](https://github.com/Luke-DeLuna/Basketball-Hesis/assets/145703035/0d2f0c20-b18b-4e59-a6ed-62425e32bd9e)
+![shot fake hesi by Kyrie Irving](https://github.com/Luke-DeLuna/Basketball-Hesis/assets/145703035/eaf18b22-e605-4941-bb48-dcef1eaa67d3)
