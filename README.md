@@ -2,7 +2,7 @@
 This site is about how to do different hesis.
 If you play basketball then you might want to know how to do a few hesis. Keep in mind that they will not work 100% of the time, but they are a nice skill to add to your bag/toolbox.
 
-### This site I found online explains what hesis are and what they do - [The Hesi Move in Basketball](https://queenballers.club/basketball/hesi-move)
+### This site I found online briefly explains what hesis are and what they do - [The Hesi Move in Basketball](https://queenballers.club/basketball/hesi-move)
 
 # Different Types of Hesis
 
