@@ -1,4 +1,4 @@
-# Basketball Hesis ("heh-zee")
+# Basketball Hesis ("heh-zees")
 This site is about how to do different hesis.
 If you play basketball then you might want to know how to do a few hesis. Keep in mind that they will not work 100% of the time, but they are a nice skill to add to your bag/toolbox.
 
